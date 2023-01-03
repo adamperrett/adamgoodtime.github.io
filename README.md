@@ -1,1 +1,0 @@
-# adamgoodtime.github.io
